@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @mr-yuji-itadori
+- 👋 Hi, I’m mr-yuji-itadori aka Sakuna's vessel.
   
 - 👀 I like me a tall girl with a nice big ass like Jennifer Lawrence.
 
